@@ -1,1 +1,1 @@
-# textsimylutor
+Вера - тим лид
